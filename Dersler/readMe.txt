@@ -1,0 +1,1 @@
+Ders Çalışırken nerede kaldığını yardımcı olmak için
